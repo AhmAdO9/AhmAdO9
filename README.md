@@ -1,5 +1,13 @@
 - 👋 Hi, I’m Faheem.
-- 🙃 Welcome to my Dungeon!
+-   
+-   
+-   
+-   
+- 
+- 
+- 
+- 
+- Why are you gay?
 
 <!---
 AhmAdO9/AhmAdO9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
